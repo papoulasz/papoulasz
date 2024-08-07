@@ -4,4 +4,4 @@ Estou estudando pelo alura..
 Estoy me desenvolvendo na linguagem JavaScripth
 -utilizo este espaço para meus projetos deenvolvidos. 
 ### vocẽ entrar em contato comigo. ⬇️ 
-@escola.pr.gov.br
+eliabe.favero@escola.pr.gov.br
