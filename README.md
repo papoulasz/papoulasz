@@ -6,3 +6,9 @@ Estoy me desenvolvendo na linguagem JavaScripth
 ### vocẽ entrar em contato comigo. ⬇️ 
 eliabe.favero@escola.pr.gov.br
 vulgo orea seca🤙
+🧱🧱🧱🧱🧱🧱🧱 
+🧱               
+🧱🧱🧱
+🧱                            
+🧱
+🧱🧱🧱🧱🧱🧱🧱 LIABE
