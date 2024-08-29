@@ -7,8 +7,5 @@ Estoy me desenvolvendo na linguagem JavaScripth
 eliabe.favero@escola.pr.gov.br
 vulgo orea seca🤙
 🧱🧱🧱🧱🧱🧱🧱 
-🧱               
-🧱🧱🧱
-🧱                            
-🧱
-🧱🧱🧱🧱🧱🧱🧱 LIABE
+
+
